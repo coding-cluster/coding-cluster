@@ -5,5 +5,5 @@
 - 🎼 Musician
 - 🎨 Artist
 - 🤷‍♂️ He/him
-- ⚡ Fun fact: I love astrophysics way more than coding 💀
+- ⚡ Fun fact: I love astrophysics 💀
 - 📨 Super secret e-mail... 👀👀👀
