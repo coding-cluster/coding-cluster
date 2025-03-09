@@ -1,9 +1,7 @@
-### Hey, Alexis here! 👋
+### Hey, Alexis here! 👋 Welcome to my lovely abode. I'm an AI Engineer with a paramount passion for Cosmology (not related to pseudoscience), which led me to pursue a career in Scientific Research (not restricted to Physics). Here's some facts about me:
 
-- 📖 Student by morning
-- 💼 Entrepeneur by the rest of the day
-- 🎼 Musician
-- 🎨 Artist
-- 🤷‍♂️ He/him
-- ⚡ Fun fact: I love astrophysics 💀
-- 📨 Super secret e-mail... 👀👀👀
+- 🤷‍♂️ Pronouns: He/him
+- 📖 Student by morning, entrepeneur all the time
+- 🎼 Been a music producer for 4 years
+- 🎨 Enrolled in artistic activities
+- ☕ I LOVE COFFEE ❤️
