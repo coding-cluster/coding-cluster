@@ -2,6 +2,6 @@
 
 - 🤷‍♂️ Pronouns: He/him
 - 📖 Student by morning, entrepeneur all the time
-- 🎼 Been a music producer for 4 years
+- 🎼 Sound designing since 2020
 - 🎨 Enrolled in artistic activities
 - ☕ I LOVE COFFEE ❤️
